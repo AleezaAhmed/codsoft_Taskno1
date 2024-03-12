@@ -1,1 +1,2 @@
-![task2](https://github.com/AleezaAhmed/codsoft_Taskno1/assets/85339535/565b49af-e987-4037-9f47-c78c3e313b5f)
+
+![task2](https://github.com/AleezaAhmed/codsoft_Taskno1/assets/85339535/5a83310b-398b-4d89-9a9d-632b5f96b43a)
